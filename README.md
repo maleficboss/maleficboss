@@ -37,7 +37,7 @@ More in my [repositories](https://github.com/maleficboss?tab=repositories).
 ## Connect
 
 - X: [@maleficboss](https://x.com/maleficboss)
-- LinkedIn: [usman-ayomide-267849207](https://www.linkedin.com/in/usman-ayomide-267849207/)
+- LinkedIn: [maleficboss](https://linkedin.com/in/maleficboss)
 - Email: oyebamijiusmanayomide@gmail.com
 
 Open to freelance and contract work.
